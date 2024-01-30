@@ -1,5 +1,6 @@
+<img src="https://64.media.tumblr.com/11216c146fa11ed349b52163ed9d6448/d0ecfe794c623682-4c/s1280x1920/987892dbb2ba7228b139621652357be68751ee59.png">
 <h3><img src ="https://64.media.tumblr.com/3e830d97e347de8a186de92855f7d6f8/702f32f9a5b8fe03-8d/s400x600/cfb5f96395a9442172d3b46469d036b00ace8e81.jpg" height=60>hey im cogy<img src ="https://64.media.tumblr.com/23031fb3e9f1737c8d40b673c9f2def2/702f32f9a5b8fe03-a3/s1280x1920/38ab919d26b0ddf28e80ea33532c0317486fd17d.jpg" height=60></h3>
-<p>if ur seeing this ur proabbly from <a href ="https://pony.town/">pony.town</a><br>
+<p>if ur seeing this ur probably from <a href ="https://pony.town/">pony.town</a><br>
 then hello!! i am usually at docks. feel free 2<br>
 apporch and int wit me!! i have no dni :3c</p>
 <img src ="https://64.media.tumblr.com/1fc61bb302f7e1003362d7c6d43d51ab/47780f42c94e41f6-48/s1280x1920/01afa65e0e7109b4f841a802ed2ab1078aea610a.png" height=100>
